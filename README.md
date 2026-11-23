@@ -1,1 +1,1 @@
-# COAL_Project_Group00
+# COAL_Prot_Group00
